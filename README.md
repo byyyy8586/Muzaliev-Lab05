@@ -1,1 +1,0 @@
-# Muzaliev-Lab05
